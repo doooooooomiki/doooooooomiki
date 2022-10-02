@@ -1,3 +1,3 @@
 👋 hey there dear web traveler 
 
-👨‍💻 sometimes I push web things to this place
+👨‍💻 sometimes I push things to this place
